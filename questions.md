@@ -40,6 +40,4 @@
 
 https://www.kinopoisk.ru/top/lists/253/
 
-
-
 http://www.toramp.com/rating.php
