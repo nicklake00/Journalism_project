@@ -17,6 +17,8 @@
 6. Жанры наиболее продолжительных сериалов.
 7. Какими свойствами/ жанрами обладают сериалы с наивысшей оценкой
  * среди кинокритиков
+ https://www.ivi.ru/titr/goodmovies/critics-awards
+ 
  * среди зрителей
  https://www.adme.ru/tvorchestvo-kino/20-luchshih-serialov-po-mneniyu-zritelej-a-ne-kritikov-1408015/
  
