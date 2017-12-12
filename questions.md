@@ -49,4 +49,4 @@ https://yandex.ru/company/researches/2014/ya_series
 
 http://spletni-o-zvezdah.ru/serialy/zhanry
 
-http://xn----7sbabkauaucayksiop0b0af4c.xn--p1ai/psychoanaliz/vse-taki-ya-lyublyu-serialy/
+http://xn----7sbabkauaucayksiop0b0af4c.xn--p1ai/psychoanaliz/vse-taki-ya-lyublyu-serialy/ / http://www.vesti.ru/doc.html?id=851654
