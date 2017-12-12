@@ -46,3 +46,5 @@ https://www.kinopoisk.ru/top/lists/253/
 http://www.toramp.com/rating.php
 
 https://yandex.ru/company/researches/2014/ya_series
+
+http://spletni-o-zvezdah.ru/serialy/zhanry
